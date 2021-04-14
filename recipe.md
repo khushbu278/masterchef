@@ -1,0 +1,1 @@
+put water in a bowl and place it on low heat. put the maggi noodles and the seasoning. wait for ten minutes. 
